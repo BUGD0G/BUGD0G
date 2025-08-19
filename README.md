@@ -1,16 +1,12 @@
-## Hi there 👋
-
-<!--
-**BUGD0G/BUGD0G** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☣ **EVAN** . . .  22 <br/> <img align="right" height="300" src="https://i.imgur.com/4u2l0zH.png" />
+☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE  <br/> 
+<img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796"> 
+</a>
+<br/>
+i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you
+<br/> twice. if i have you added i'll probably sit with you, sometimes i have little to say. <br/> i dont care who interacts. i block/ignore specific types of pt players.
+<br/> if you want to be friends but you fall into that category i'll politely let you know. 
+<br/> i'm  sorry but im not reading your 4 page long dni so if i fall into that just block 
+<br/> or hide me. be nice to each other or learn how to curate your space like a 
+<br/> fucking adult ^_^ if you're mean to me im going to assume youre baiting or doing 
+a bit. <br/> copy my shit and imma find you in real life 
