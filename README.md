@@ -4,4 +4,4 @@
 </a>
 <br/> ...more canidcreature than human... <br/>
 i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you twice. <br/> I dont care who interacts i block or ignore people on my own accord, do the same ok...?
-<br/> if you ever want to play minecraft (java) together lmk
+<br/> if you ever want to play minecraft (java) together lmk here's me kissing alex kralie <img align="left" height="300" src="https://i.imgur.com/RhXdI52.jpeg" />
