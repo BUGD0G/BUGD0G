@@ -2,6 +2,6 @@
 ☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE  <br/> 
 <img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796"> 
 </a>
-<br/> ...more canidcreature than human... <br/>
-i have memory issues and A Lot Of Other Issues, srry if i say the same thing to you twice. <br/> I dont care who interacts i block or ignore people on my own accord, do the same ok...?
-<br/> if you ever want to play minecraft (java) together lmk here's me kissing alex kralie <img align="left" height="210" src="https://i.imgur.com/RhXdI52.jpeg" />
+<br/> MORE CANIDCREATURE THAN HUMAN. I HAVE NO SOCIAL SKILLS PET ME AND SEE <br/>
+MEMORY ISSUES N A LOT OF OTHER STUFF. I DONT TAKE THIS GAME SERIOUSLY <br/> IDC WHO INTERACTS I BLOCK WHO I WANT, DO THE SAME OK...?
+<br/> WORKING ON A PUBLIC MINECRAFT SERVER HERE'S ME KISSING ALEX KRALIE IN THE MEANTIME <img align="left" height="210" src="https://i.imgur.com/RhXdI52.jpeg" />
