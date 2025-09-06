@@ -1,6 +1,4 @@
-☣ **EVAN** . . . 23 YEARS DEAD <br/> 
-☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE  <br/> 
-<img src="https://gifcity.carrd.co/assets/images/gallery39/59e6c9a7.gif?v=47652796"> 
-</a>
-<br/>  IDC WHO INTERACTS I IGNORE/BLOCK CERTAIN TYPES OF PLAYERS, DO THE SAME OK...? 
-<br/> i do not care if you dont like me idk what to tell you man
+☣ **EVAN** . . . 23 YEARS DEAD <img align="left" src="https://blob.gifcities.org/gifcities/2MLGHAVMDVV34Q22ZJ265A22OPI2QZO4.gif">  <br/> 
+☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE
+</br> IDC WHO INTERACTS I IGNORE/BLOCK CERTAIN TYPES OF PLAYERS, DO THE SAME OK...? 
+
