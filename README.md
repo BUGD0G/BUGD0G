@@ -1,5 +1,5 @@
 ☣ **EVAN** . . . 2300 <img align="left" src="https://blob.gifcities.org/gifcities/2MLGHAVMDVV34Q22ZJ265A22OPI2QZO4.gif">  <br/> 
-☣ [PERSONAL STRAWPAGE](https://z0mbielovejuice.straw.page) FOR ART ACCOUNTS + MORE
+☣ [PERSONAL STRAWPAGE](https://w0lf.straw.page) FOR ART ACCOUNTS + MORE
 </br> 🪓 NOT VERY SOCIAL, IT DEPENDS ON HOW YOU INTERACT ;]
 </br> <img width="540" src="https://i.imgur.com/Nc3gjDK.png"> 
 <br/><br/><br/><br/><br/><br/><br/><br/> <br/>
