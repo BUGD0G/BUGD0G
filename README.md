@@ -3,4 +3,4 @@
 </br> 🪓 UNPREDICTABLE SOCIAL BATTERY. I SIMPLY LIKE SITTING AROUND PEOPLE.
 <br/> 🪓 NO DNI I BLOCK/IGNORE. COPY MY SHIT IMMA FIND YOU IRL <img src="https://pixels.crd.co/assets/images/gallery02/eb638353.gif?v=29416114"> <img src="https://wilardo.crd.co/assets/images/gallery29/7b92b803.gif?v=c0a0770b"> <br/> 
 
-<br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> `if you publicize your disorders/illness im gonna avoid befriending you. dont care if you do, just dont wanna be close to ya.`
+<br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> <br/> `i'm very skittish of who i befriend. don't take it personally if i say no.`
