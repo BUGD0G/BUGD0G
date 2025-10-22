@@ -6,8 +6,9 @@
        <br> <br>
        <img src="https://i.imgur.com/a8RBr52.png" width="200">
        <br> I SOMETIMES DON'T TALK MUCH, I JUST LIKE SITTING AROUND OTHERS. 
-       <br> WON'T ADD YOU UNLESS I KNOW WE'LL HIT IT OFF - NOTHING PERSONAL.
-    <br> NO DNI I BLOCK/IGNORE. ESPECIALLY IF YOU'RE DELUSIONAL.
+       <br> WON'T ADD YA UNLESS I KNOW WE'LL HIT IT OFF - NOTHING PERSONAL.
+    <br> NO DNI I BLOCK/IGNORE.
+    <br> PLEASE SIT WITH ME IF I HAVE YOU ADDED. <3
        <br> COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20">
        
 </div>
