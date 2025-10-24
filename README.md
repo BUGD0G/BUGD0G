@@ -5,8 +5,6 @@
     <a href="https://machetes.straw.page">STRAWPAGE FOR ART + XTRA INFO</a>
        <br> <br>
        <img src="https://i.imgur.com/a8RBr52.png" width="200">
-       <br> I SOMETIMES DON'T TALK MUCH, I JUST LIKE SITTING AROUND OTHERS. 
-       <br> NOT HERE FOR MEANINGFUL CONNECTIONS. I ALREADY GOT MY FRIENDS.
     <br> NO DNI I BLOCK/IGNORE. SYSTEMS GET INSTA IGNORED.
     <br> PLEASE SIT WITH ME IF I HAVE YOU ADDED. <3
        <br> COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20">
