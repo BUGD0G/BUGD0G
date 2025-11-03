@@ -5,7 +5,7 @@
     <a href="https://machetes.straw.page">STRAWPAGE FOR ART + XTRA INFO</a>
        <br> <br>
        <img src="https://i.imgur.com/a8RBr52.png" width="200">
-    <br> NO DNI I BLOCK/IGNORE. interact with ponytowners makes me feel even more retarded 
+    <br> NO DNI I BLOCK/IGNORE. interacting with ponytowners makes me feel even more retarded 
     <br> PLEASE SIT WITH ME IF I HAVE YOU ADDED. <3
        <br> COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20">
        
