@@ -5,7 +5,7 @@
     <a href="https://machetes.straw.page">STRAWPAGE FOR ART + XTRA INFO</a>
        <br> <br>
        <img src="https://i.imgur.com/a8RBr52.png" width="200">
-    <br> NO DNI I BLOCK/IGNORE. <br/> U DONT WANNA BE FRIENDS W ME IM INSANE  <br/>
+    <br> NO DNI I BLOCK/IGNORE. <br/> RARELY ACCEPTING NEW FRIENDS SRY  <br/>
        <br> COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20">
        
 </div>
