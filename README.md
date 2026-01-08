@@ -7,7 +7,6 @@
        <img src="https://i.imgur.com/a8RBr52.png" width="200">
     <br> NO DNI I BLOCK/IGNORE. <br/>
         COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20">
-        <br/> do not ask to be my friend unless you enjoy being gutted
        
 </div>
 <br>
