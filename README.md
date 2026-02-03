@@ -5,7 +5,7 @@
     <a href="https://machetes.straw.page">STRAWPAGE FOR ART + XTRA INFO</a>
        <br> <br>
        <img src="https://i.imgur.com/hifzpYd.png" width="400">
-    <br> NO DNI I BLOCK/IGNORE. <br/>
+    <br>SYSTEMS DNI. THE REST I BLOCK/IGNORE TO CURATE MYSELF. DO THE SAME. :P <br/>
         COPY MY SHIT N I'LL FIND YOU IRL. <img src="https://confettiguts.gay/graphics/graphicsimg/hxQF9yX.gif" width="20"> 
         <br> 
        
