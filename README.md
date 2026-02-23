@@ -4,5 +4,6 @@
   <div class="clickable-div">
     <a href="https://machetes.straw.page">STRAWPAGE FOR ART + XTRA INFO</a>
        <br> <br>
-       <img src="https://i.imgur.com/hifzpYd.png" width="400">
+    HEY RETARDS DID YOU KNOW THIS FUNCTION IS FREE AND ALWAYS READILY AVAILABLE TO USE?
+       <img src="https://i.imgur.com/tdvG6ps.png" width="400">
    
