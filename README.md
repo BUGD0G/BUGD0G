@@ -1,1 +1,1 @@
-
+if i have you added, you are more than welcome to sit with me or chat with me. just be sure to whisper, i may miss your chat since im often offtab. i dont add random people, im just a very paranoid person.
