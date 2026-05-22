@@ -1,1 +1,1 @@
-
+be my friend if youre bringing back swag in a major way like me..... come be insane with me. play minecraft with me . my discord is bugd0g im practically always online </br> my ponies are usually either me or my ocs do not copy or i'll find you in real life
