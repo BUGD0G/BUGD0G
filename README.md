@@ -1,3 +1,3 @@
 <img align="right" width="400" src="https://i.imgur.com/dFsWmHD.gif" />
-be my friend if youre bringing back swag in a major way like me..... <br/> idk how 2 talk to ppl AT ALL but you ARE Welcome to say hallo. i mostly bond over video game playing, so come be insane with me. play minecraft with me . my discord is bugd0g im practically always online. my ponies are usually either me or my ocs do not copy or i'll find you in real life. im always zoomed in all the way plleeaaasse whisper to me
+HAI. IMA DOG AND A BUG. be my friend if youre bringing back swag in a major way like me..... idk how 2 talk to ppl AT ALL but you ARE Welcome to say hallo. TALK 2 ME ONLY IF U R OK WITH BEING GUTTED. more than welcome if u wnat 2 come be insane with me. play minecraft with me . my discord is bugd0g im practically always online to game. my ponies are usually either me or my ocs do not copy or i'll find you in real life. im always zoomed in all the way plleeaaasse whisper to me. 
 
