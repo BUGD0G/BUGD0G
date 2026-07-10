@@ -1,2 +1,2 @@
 <img align="right" width="400" src="https://i.imgur.com/dFsWmHD.gif" />
-U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. if u like incest or little kids or call urself a system or self diagnose Do not talk to me you retard
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. if u like incest or little kids Do not talk to me you retard . dont involve me in discourse im an adult with a job :-] use the block / hide button ITS FREE CAN U BELIEVE IT?? i avoid/ignore ppl in certain fandoms :3c
