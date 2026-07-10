@@ -1,2 +1,2 @@
 <img align="right" width="400" src="https://i.imgur.com/dFsWmHD.gif" />
-WE ON PONY.TOWN BRUH CHILL THE FUCK OUT AND COME PLAY TOYS. U MAY APPROACH ME IF U R OK WITH BEIN GUTTED. i dont roleplay sry but if ur funny enough i'll riff with u bro. ur free to join my server on my strawpage if ur cool.  im most likely offtab drawin or whateva please whisper 2 interact \  i DO avoid certain ppl no im not listing them all off ill just ignore u with my free will
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. if u like incest or little kids or call urself a system or self diagnose Do not talk to me you retard
