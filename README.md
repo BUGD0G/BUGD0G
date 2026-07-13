@@ -1,2 +1,2 @@
 <img align="right" width="400" src="https://i.imgur.com/dFsWmHD.gif" />
-U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. dont involve me in discourse im an adult with a job :-] use the block / hide button ITS FREE CAN U BELIEVE IT?? i avoid/ignore ppl in certain fandoms :3c if u like incest or little kids or animal porn Do not talk to me you retard  i cant believe i have 2 even say this here  
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. use the block / hide button ITS FREE CAN U BELIEVE IT?? i avoid/ignore ppl in certain fandoms :3c if u like incest or little kids or animal porn Do not talk to me you retard  i cant believe i have 2 even say this here  DONT drag me into discourse get help or kys
