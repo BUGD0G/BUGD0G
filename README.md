@@ -1,2 +1,2 @@
 <img align="right" width="400" src="https://i.imgur.com/dFsWmHD.gif" />
-U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.  i avoid/ignore ppl i dont fuck with :3€ pls take the hint :-( if i have u added u r always welcome to come sit with me. use the block / hide button ITS FREE CAN U BELIEVE IT??
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.  this game is not that fucking serious if u come at me im going to assume ur doing a bit. i avoid/ignore ppl i dont fuck with :3€ use the block / hide button ITS FREE 
