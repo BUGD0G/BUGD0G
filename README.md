@@ -1,2 +1,2 @@
 <img align="right" width="400" src="https://images.artfight.net/attack/7uKqI7xijFsMxeXnAiKjvM9TwxjQpvfVcb6AhuIUb4SKKosCBLfoqc2S7NkM.gif?t=1784974653"/>
-U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. dni list too long, i avoid/ignore ppl i dont fuck with :3€ use the block / hide button. i sometimes have public chat OFF because i cant stand to  look at the absolute dogshit retard takes on here.  <3 if you need something whisper me ^__^
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. dni list too long, i avoid/ignore ppl i dont fuck with :3€ use the block / hide button. i need friends if you want to beat each other up or something ask for my discord or somethinh idk
