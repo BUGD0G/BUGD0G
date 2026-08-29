@@ -1,3 +1,3 @@
-U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. dont be offended if i ignore you im either offtab/protecting my peace/distracted by my friends. wanna be friends??? catch me.... my discord is bugd0g :-3 PLS I NEED FRIENDS
+U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED. dont be offended if i ignore you im either offtab/protecting my peace/distracted. wanna be friends??? catch me.... my discord is bugd0g :-3 PLS I NEED FRIENDS
 
 <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok? if you like incest or pedophilia get the fuck away from me and kill yourself i have no sympathy for you you are a grown ass adult ok?
