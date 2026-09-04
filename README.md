@@ -6,6 +6,6 @@ me if u take everything ppl say seriously . come riff with me bro. <br/> dont be
 </p>
 <br/> 
 <p align="center"> 
-  <img src="https://i.imgur.com/Cwjcrjv.gif" width="450">
+  <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
 <br/>
