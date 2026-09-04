@@ -5,6 +5,7 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=3fc8f5cd">
   <br/> pls dont act buddy with 
 me if u take everything ppl say seriously . come riff with me bro. <br/> dont be offended if i ignore you im either offtab/protecting my peace/distracted. i need friends to be gay and retarded with <br/> <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok?
+  <br/> if you dont like me just hide me, i cant tell otherwise. it's pixel horses i don;t have time for riddles.
 </p>
 <br/> 
 <p align="center"> 
