@@ -3,7 +3,7 @@
   <br/>
   U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.
   <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=3fc8f5cd">
-  <br/> i dont approach ppl first, but love being approached. come riff with me bro. <br/> dont be offended if i ignore you im either offtab/protecting my peace/distracted. i need friends to be gay and retarded with <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok? systems dni x) <br/>
+  <br/> i dont approach ppl first, but love being approached. come riff with me bro. ask for my discord ok? <br/> dont be offended if i ignore you im either offtab/protecting my peace/distracted. i need friends to be gay and retarded with <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok? systems dni x) <br/>
 </p>
 <br/> 
 <p align="center"> 
