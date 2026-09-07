@@ -3,7 +3,7 @@
   <br/>
   U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.
   <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=3fc8f5cd">
-  <br/> pls dont act buddy with me if u take everything ppl say seriously . come riff with me bro. <br/> dont be offended if i ignore you im either offtab/protecting my peace/distracted. i need friends to be gay and retarded with <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok? <br/> *<sup> if you don't like me pls just block me, OR EVEN DM ME TO CLEAR AIR!! we on ponytown we r all mentally ill. i dont have time 2 do mental jumping jacks </sup>* <br/>
+  <br/> i dont approach ppl first, but love being approached. come riff with me bro. <br/> dont be offended if i ignore you im either offtab/protecting my peace/distracted. i need friends to be gay and retarded with <br/> i mostly just ignore people i dont want to talk to but if you really make me frown i will hide you ok? systems dni x) <br/>
 </p>
 <br/> 
 <p align="center"> 
