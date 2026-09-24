@@ -7,4 +7,4 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
-<br/> if your only means of friendship is bonding over a mutual hatred for someone else (especially a stranger) i would kindly ask you to stay far away from me and my circle, because i'm an adult and i don't have time for highschool drama... but i wish u the best, and hope u find stuff that makes u really happy
+<br/> im schizophrenic, and sometimes slow due to brain damage from abuse, be patient with me but pls dont walk on eggshells around me !!!
