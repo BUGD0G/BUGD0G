@@ -2,7 +2,6 @@
  U MAY APPROACH ME ONLY IF U ARE OK WITH BEIN GUTTED.
   <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=3fc8f5cd">
    <br/> USUALLY OFFTAB/DISTRACTED <br/> I IGNORE PPL I DONT LIKE. I USUALLY HAVE PUBLIC CHAT BUBBLES **OFF**.
- <br/> DNI IF U HAVE IDENTITY ISSUES/COMPLEX PLS FOR THE LOVE OF GOD
 </p>
 <br/> 
 <p align="center"> 
