@@ -7,4 +7,3 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
-<br/> im schizophrenic, and sometimes slow due to brain damage from abuse, be patient with me but pls dont walk on eggshells around me !!!
