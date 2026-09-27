@@ -7,4 +7,4 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
-<br/>  your perception of me is a reflection of yourself x)
+<br/>  YAP: dont let my amusement of being unapologetically myself intimidate u … i am awkward and nervous 100% of the time . i struggle making friends and talkin 2 ppl but u are so welcome to try >_< if u dont like me, pls block me im too retarded to read a room. if ur mean spirited stay away from me and my circle ok? 
