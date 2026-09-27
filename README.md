@@ -7,3 +7,4 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
+<br/>  your perception of me is a reflection of yourself x)
