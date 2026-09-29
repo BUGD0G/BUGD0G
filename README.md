@@ -7,4 +7,4 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
-<br/>  do not be intimidated by my loud online personality, if this makes u assume stuff about me/makes u dislike me maybe take a sec.... consider being my friend and treating me with kindness and we can hold paws & heal 2gether. my swag IS contagious, but dont be afraid 2 touch me... come closer.... DNI if u have DID im known for killing alters
+<br/>  do not be intimidated by my loud online personality, if this makes u assume stuff about me/makes u dislike me maybe take a sec.... consider being my friend and treating me with kindness and we can hold paws & heal 2gether. my swag IS contagious, but dont be afraid 2 touch me... come closer.... that being said if u r mean 2 me im just going to assume ur baiting and riff with u ok
