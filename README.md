@@ -7,4 +7,4 @@
 <p align="center"> 
   <img src="https://i.imgur.com/KDbMtHJ.gif" width="450">
 </p>
-<br/>  <br/>  do not be intimidated by my amusement of being unapologetically myself. im nervous 100% of the time and Idk how 2 act remotely human . i do not enjoy being around those who are obsessed with staying sick forever. BE MY FRIEND
+<br/>  <br/>  do not be intimidated by my amusement of being unapologetically myself. im nervous 100% of the time and Idk how 2 act remotely human . i do not enjoy being around those who are obsessed with staying sick forever. add me on discord i;ll annoy u for eternity (spread my bugs) user bugd0g
