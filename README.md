@@ -14,5 +14,5 @@
 <br/>
 <p align="center">
 <br/> *my main ponies, if u copy U SUCK!!! feel free to ask for insp if ur pure of heart. PT WHEN WILL YOU ADD A TRANSPARENT COLOR..? the smiledog is by finalformm on pinterest ^_^
-<br/> <img src="https://i.imgur.com/5muQp9V.gif" width="200"> <img src="https://i.imgur.com/hNqxzAk.gif" width="200"> <img src="https://i.imgur.com/dmVNhoQ.gif" width="200"> <img src="https://i.imgur.com/NyjTTOn.gif" width="200"> <img src="https://i.imgur.com/198h6X9.gif" width="200">
+<br/> <img src="https://i.imgur.com/5muQp9V.gif" width="200"> <img src="https://i.imgur.com/hNqxzAk.gif" width="200"> <img src="https://i.imgur.com/dmVNhoQ.gif" width="200"> <img src="https://i.imgur.com/NyjTTOn.gif" width="200"> <img src="https://i.imgur.com/198h6X9.gif" width="200"> <img src="https://i.imgur.com/m21JSBM.gif" width="200"> <img src="https://i.imgur.com/EMIMGmA.gif" width="200"> <img src="https://i.imgur.com/IboGrGi.gif" width="200">
 </p>
