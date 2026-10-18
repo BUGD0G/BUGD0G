@@ -15,3 +15,6 @@
 <br/> MY MAINS!! DONT COPY OR I GUT U the smiledog is by finalformm on pinterest ^_^
 <br/> <img src="https://i.imgur.com/5muQp9V.gif" width="200"> <img src="https://i.imgur.com/hNqxzAk.gif" width="200"> <img src="https://i.imgur.com/dmVNhoQ.gif" width="200"> <img src="https://i.imgur.com/NyjTTOn.gif" width="200"> <img src="https://i.imgur.com/198h6X9.gif" width="200"> <img src="https://i.imgur.com/m21JSBM.gif" width="200"> <img src="https://i.imgur.com/EMIMGmA.gif" width="200"> <img src="https://i.imgur.com/IboGrGi.gif" width="200">
 </p>
+<br/>
+<br/>
+<img src="https://i.imgur.com/lgYsudC.gif" width="400">
