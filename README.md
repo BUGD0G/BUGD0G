@@ -13,4 +13,3 @@
 </p>
 <br/>
 <br/>
-<img src="https://i.imgur.com/lgYsudC.gif" width="400">
