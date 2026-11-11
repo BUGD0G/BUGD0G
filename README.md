@@ -4,7 +4,7 @@
   <img src="https://gifcity.carrd.co/assets/images/gallery01/daa2513e.gif?v=3fc8f5cd">
    <br/> IDC ABOUT DISCOURSE+DRAMA KEEP ME OUTTA IT. LET’S PLAY :3€
  <br/> I IGNORE/BLOCK WHOEVER. I SOMETIMES HAVE PUBLIC CHAT BUBBLES **OFF** <br/>
- <br/> IM SO NICE. IM NORMAL. I DONT BITE. I LOVE YOU. IM NOT OFFPUTTING AND YOU WILL TALK TO ME
+ <br/> IM SO NICE. IM NORMAL. I DONT BITE. I LOVE YOU. IM NOT OFFPUTTING AND YOU WILL TALK TO ME <br/> im rly awkward and shy sometimes, i really suck at talking to people but i appreciate ur acknowledgemnt
  
 </p>
 <br/> 
